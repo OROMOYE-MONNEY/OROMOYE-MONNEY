@@ -1,0 +1,2 @@
+# OROMOYE-MONNEY
+Salut à vous tous ! Je propose une monnaie virtuelle qui sera l’avenir de moyen de dépenses. Pensez-vous que dans les années à venir la monnaie physique existera toujours ? Pour ma part la monnaie physique n’existera plus dans les prochaines années à venir ! Investissez-vous dans les monnaies virtuelles avant que les prix monte ! Pour ma part ma monnaie virtuelle OROMOYE-MONNEY est la solution de votre ressource de demain ! 
